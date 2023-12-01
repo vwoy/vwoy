@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vwoy
 - 👀 I’m interested in ... the planet, its people, and accessible resources
-- 🌱 I’m currently learning ... how to design rock climbing routes
+- 🌱 I’m currently learning ... how to horseback ride and self-publish poetry
 - 💞️ I’m looking to collaborate on ... ways to foster agency among young people in academic spaces through online and offline community building
 
 <!---
